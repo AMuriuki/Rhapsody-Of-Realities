@@ -24,6 +24,6 @@ Ephesians 4:23-24 AMPC<br>
 **1 Peter 2:9 AMPC<br>
 9 But you are a chosen race, a royal priesthood, a dedicated nation, [God’s] own [a]purchased, special people, that you may set forth the wonderful deeds and display the virtues and perfections of Him Who called you out of darkness into His marvelous light.**
 
-1 YEAR BIBLE READING PLAN: Matthew 2 & Genesis 3-5
+1 YEAR BIBLE READING PLAN:<br>Matthew 2 & Genesis 3-5
 
-2 YEAR BIBLE READING PLAN: Matthew 1:15-25 & Genesis 2
+2 YEAR BIBLE READING PLAN:<br>Matthew 1:15-25 & Genesis 2

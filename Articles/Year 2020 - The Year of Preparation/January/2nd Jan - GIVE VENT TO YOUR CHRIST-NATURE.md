@@ -8,7 +8,7 @@ The real essence of Christianity is Christ in you, manifesting and expressing Hi
 
 For example, when you’re offended, do you give vent to your Christ-nature or allow your flesh to gain the upper hand? As one who’s born again, Christ rules your life; you have His nature. Therefore, in all you do, and at all times, refuse to yield to the flesh; rather, respond from your Christ-nature. 
 
-When you talk, let Christ be heard. Let His love effuse from your words and actions. Let His wisdom mantle your hearers as you speak only gracious and lifting words; let Him talk through you. Let Him see through your eyes, walk with your legs and work with your hands. 2 Corinthians 4:11 says, “For we which live are alway delivered unto death for Jesus’ sake, that the life also of Jesus might be made manifest in our mortal flesh.” This is Christianity. 
+When you talk, let Christ be heard. Let His love effuse from your words and actions. Let His wisdom mantle your hearers as you speak only gracious and lifting words; let Him talk through you. Let Him see through your eyes, walk with your legs and work with your hands. **_2 Corinthians 4:11 says, “For we which live are alway delivered unto death for Jesus’ sake, that the life also of Jesus might be made manifest in our mortal flesh.” This is Christianity._** 
 
 All that God wants manifested in you is Christ; touching and changing lives through you. The prophet said, “…he shall see his seed, he shall prolong his days…” (Isaiah 53:10); you’re that seed. Hallelujah! You reveal the glory and beauty of Christ. That glory is in your spirit, where Christ dwells. Therefore, look inwards; see the glory within and reveal the same to your world.
 

@@ -1,4 +1,7 @@
 
+# GIVE VENT TO YOUR CHRIST-NATURE
+Pastor Chris
+
 **To whom God would make known what is the riches of the glory of this mystery among the Gentiles; which is Christ in you, the hope of glory  (Colossians 1:27).** 
 
 The real essence of Christianity is Christ in you, manifesting and expressing Himself in, and through you. The Christian is one who expresses and demonstrates the life, nature, character and righteousness of Christ. This is one of the things you check in appraising yourself spiritually; how much your actions, attitude, words and character epitomise Christ. 
